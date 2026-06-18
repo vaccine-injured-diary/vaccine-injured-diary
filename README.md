@@ -129,7 +129,7 @@
 
 
 我ながら醜い写真ですが、ご承知置きください。
-薬疹1.jpg
+https://github.com/vaccine-injured-diary/vaccine-injured-diary/blob/main/%E8%96%AC%E7%96%B91.jpg
 
 文章なんて書いたことなくて、大丈夫かな・・・。
 拙い文章ですが、毎日少しずつ、一生懸命書きました。
